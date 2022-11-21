@@ -3,4 +3,6 @@
 
 [LMS](https://jhsportal.adnu.edu.ph/)
 
-![Tbate](https://static.wikia.nocookie.net/thebate/images/9/91/Volume7.jpg/revision/latest?cb=20200212042250)
+[SCHEDULE](https://docs.google.com/spreadsheets/d/1StSO-4w4YGMcVNkV_uAYCMGAZ_i5rjrXj7O_jBaCrQA/edit#gid=0)
+
+``
