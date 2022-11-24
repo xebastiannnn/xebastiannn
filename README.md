@@ -16,7 +16,8 @@ However, as the Moon orbits the Earth it also causes a tide of rock to rise and 
 `*The Moon has quakes too
 They're not called earthquakes but moonquakes. They are caused by the gravitational influence of the Earth. Unlike quakes on Earth that last only a few minutes at most, moonquakes can last up to half an hour. They are much weaker than earthquakes though.`
 
-Tap this link so that you can  [**Learn more about the moon**](https://www.youtube.com/watch?v=6AviDjR9mmo)
+Tap the link so that you can  [**Learn more about the moon**](https://www.youtube.com/watch?v=6AviDjR9mmo)
+
 
 
 
