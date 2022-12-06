@@ -18,6 +18,20 @@ They're not called earthquakes but moonquakes. They are caused by the gravitatio
 
 Tap this link so that you can  [**Learn more about the moon**](https://www.youtube.com/watch?v=6AviDjR9mmo)
 
+*Now we will talk about the eclipse*
+
+`**Did you know that The longest duration for a total solar eclipse possible is 7.5 minutes. During this eclipse the shadow of the Moon races across the Earth at 2410 mph in western Oregon down to 1502 mph near Chareston, SC. Partial solar eclipses can be seen up to 3,000 miles from the "track" of totality.`**
+
+*Eclipse Fun Facts*
+
+`The cycle of eclipses repeats every 18.6 years called the saros.
+Lunar eclipses are visible over an entire hemisphere.
+Lunar eclipses can occur up to 3 times a year.
+A soar eclipse always occurs two weeks before or after a lunar eclipse.
+Lunar eclipses can only occur during a full moon.`
+
+
+
 
 
 
