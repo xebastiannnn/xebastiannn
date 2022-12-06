@@ -30,7 +30,9 @@ Lunar eclipses can occur up to 3 times a year.
 A soar eclipse always occurs two weeks before or after a lunar eclipse.
 Lunar eclipses can only occur during a full moon.`
 
+**Watch this video about the eclipse**
 
+[**ECLIPSE**](https://www.youtube.com/watch?v=cxrLRbkOwKs)
 
 
 
